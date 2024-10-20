@@ -1,0 +1,1 @@
+Ambitious and passionate individual with a strong interest in cryptocurrency and blockchain technology. Although I’m still in my first year of high school, I have already gained valuable experience in these innovative areas and am continually seeking to expand my knowledge and skills. Driven by a desire for innovation, I aim to make a meaningful impact in tech.
