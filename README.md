@@ -1,1 +1,1 @@
-As a first-year high school student, I'm deeply passionate about cryptocurrency and blockchain technology. Despite my young age, I've already gained experience in these innovative fields and continuously strive to expand my knowledge. Driven by ambition, I aim to make a meaningful impact in the tech world.
+I’m a first-year high school student with a strong interest in cryptocurrency and blockchain. Even though I’m still young, I’ve already been exploring these areas and am always looking to learn more. My goal is to build a career in tech and make a real impact in the field.
